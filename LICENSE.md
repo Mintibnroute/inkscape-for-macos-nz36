@@ -1,4 +1,4 @@
-# 
+# Enhance Inkscape for macOS with new Brushes for Inkscape for macOS - collaboration and smart objects, the #1 brush. Includes collaboration and smart objects for a smoother and
 
 
 
